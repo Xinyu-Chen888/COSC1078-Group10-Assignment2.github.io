@@ -1,2 +1,2 @@
-# Xinyu-Chen888.github.io
+# COSC1078-Group10-Assignment2.github.io
 My Profile
